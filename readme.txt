@@ -1,2 +1,2 @@
 create a new branch.
-you are goodman.
+you are great man.
